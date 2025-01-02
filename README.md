@@ -1,0 +1,1 @@
+# Yetiskin-Nufus-Sayimi-Gelir-Veri-Setim
